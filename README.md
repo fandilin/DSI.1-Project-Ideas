@@ -9,8 +9,8 @@ To what extent are parents involved in their children's primary education? How d
 
 
 ##2. Standardized testing in Primary Education
-How does standardized testing during primary education affect a child's learning? Does the routinization of standardized testing in primary education have an impact on people's lives long after primary education and how so? By contrasting primary schools in which children do and do not receive standardized testing and studying those students longitudinally, I hope to determine whether standardized testing is a worthwhile investment and if it is, how we can best utilize it.
+How does standardized testing during primary education affect a child's learning? Does the routinization of standardized testing in primary education have an impact on people's lives long after primary education and how so? By comparing primary schools in which children do and do not receive standardized testing and studying those students longitudinally, I hope to determine whether standardized testing is a worthwhile investment and if it is, how we can best utilize it.
 
 
 ##3. Recess in Primary Education
-How does recess affect a child's education? What is the importance of unstructured, exploratory learning in comparison to standardized, academic learning and how can it be implemented through recess? By looking at the various ways in which students experience recess across the country and their development of non-academic skills, I hope to determine general guidlines for how recess should be conducted for optimal non-academic learning.
+How does recess affect a child's education? What is the importance of unstructured, exploratory learning in comparison to standardized, academic learning and how can it be implemented through recess? By looking at the various ways in which students experience recess across the country and their development of non-academic skills, I hope to determine general guidelines for how recess should be conducted for optimal non-academic learning.
